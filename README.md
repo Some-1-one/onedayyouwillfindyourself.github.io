@@ -1,2 +1,2 @@
 # onedayyouwillfindyourself.github.io
-Advices From The Grown-Ups
+Advice From The Grown-Ups
